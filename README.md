@@ -5,7 +5,7 @@
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
-- 📫 How to reach me **shahsujal618@gmail.com**
+- 📫 How to reach me shahsujal618@gmail.com
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/sujal-shah-6550482b3](https://www.linkedin.com/in/sujal-shah-6550482b3)
 
