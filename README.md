@@ -7,6 +7,6 @@
 </p>
 - 📫 How to reach me shahsujal618@gmail.com
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/sujal-shah-6550482b3](https://www.linkedin.com/in/sujal-shah-ai)
+- 📄 Know about my experiences [https://www.linkedin.com/in/sujal-shah-ai](https://www.linkedin.com/in/sujal-shah-ai)
 
 
